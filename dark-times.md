@@ -1,26 +1,7 @@
-Your antidote to the daily news grind
-About
-
-Sarah KENDZIOR
-Correspondenten
-Video's
-Podcasts
-Contact
-Boeken
-Sprekers
-Cadeaulidmaatschap
-Evenementen
-Over ons
-Vacatures
-Veelgestelde vragen
-Voorwaarden
-Column
-3 months ago   Reading time 8 - 11 minutes
-Having studied authoritarian states for over a decade, I would never exaggerate the severity of the threat we now face. But an American kleptocracy is exactly where president-elect Trump and his backers are taking us. That’s why I have a favor to ask you, my fellow Americans.
 We’re heading into dark times. This is how to be your own light in the Age of Trump
-Flyover Country Correspondent
+====================================================================================
 
-Sarah KENDZIOR
+by Flyover Country Correspondent Sarah KENDZIOR
 
 My fellow Americans, I have a favor to ask you.
 
@@ -35,12 +16,9 @@ Write a list of things you would never do. Because it is possible that in the ne
 Write a list of things you would never believe. Because it is possible that in the next year, you will either believe them or be forced to say you believe them.
 
 A president-elect who wants to strip our country down for parts
+---------------------------------------------------------------
 
-It is increasingly clear, as Donald Trump appoints his cabinet of white supremacists and war-mongers, as 
-More on the surge in hate crime can be found here. hate crimes rise, as the 
-Read this non-partisan plea to save our democratic institutions. institutions that are supposed to protect us cower, as 
-Read more in this piece on international law in the Age of Trump. international norms are shattered, that his ascendency to power is 
-You can read Joshua Foust’s article "This Is Not Normal" here. not normal.
+It is increasingly clear, as Donald Trump appoints his cabinet of white supremacists and war-mongers, as hate crimes rise, as the institutions that are supposed to protect us cower, as international norms are shattered, that his ascendency to power is not normal.
 
 This is an American authoritarian kleptocracy, backed by millionaire white nationalists both in the United States and abroad, meant to strip our country down for parts, often using ethnic violence to do so.
 
