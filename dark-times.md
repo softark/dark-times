@@ -29,6 +29,7 @@ I have been studying authoritarian states for over a decade, and I would never e
 And the plight is beyond party politics: it is not a matter of having a president-elect whom many dislike, but having a president-elect whose explicit goal is to destroy the nation.
 
 None of us deserves what’s coming
+----------------------------------
 
 I am writing this not for those who oppose him, but for those who support him, because Trump and his backers are going to hurt you too.
 
