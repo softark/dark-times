@@ -68,6 +68,7 @@ This mirrors Trump’s own goals of destroying the United States, and it mirrors
 I have worked, often unpaid, as an expert witness in political asylum cases for people from authoritarian states, because I will do anything to help people in this terrible position. The brutality they have endured, the fear of the state that prevents them from making independent choices, is something difficult for American minds to fathom.
 
 The mainstream media has promoted him ceaselessly and are now rationalizing and normalizing Trump’s most extreme policies
+
 We are a deeply flawed nation, and those who are minorities or poor have faced state-sanctioned cruelty as well as limited opportunities. But it is simply not the same as authoritarianism.
 
 Though our speech is often challenged, we can still speak. We can debate each other and come up with ways to improve our country. We can scream at each other and mock each other and tell each other our political choices are terrible. You will miss those days, they may end soon.
@@ -78,8 +79,7 @@ For what it’s worth, Trump supporters, I have always supported your boycott of
 
 Preparing to live like a nation of dissidents
 
-It is possible that I will end up living like the dissidents who I defended from foreign dictatorships for so long. I will talk in coded terms, as I have started to do already. Did you think it was a coincidence that I published an article about 
-Read my piece on Lovejoy and courage at The Correspondent. Elijah Lovejoy, a journalist who sought freedom for all and was killed by St. Louis mobs, right before the election? I will try to continue to publish in foreign outlets. I will rearrange my life so I can fight this fight, because I am fighting for my country, and I never give up on my country or on my countrymen.
+It is possible that I will end up living like the dissidents who I defended from foreign dictatorships for so long. I will talk in coded terms, as I have started to do already. Did you think it was a coincidence that I published an article about Elijah Lovejoy, a journalist who sought freedom for all and was killed by St. Louis mobs, right before the election? I will try to continue to publish in foreign outlets. I will rearrange my life so I can fight this fight, because I am fighting for my country, and I never give up on my country or on my countrymen.
 
 But I need you to fight too, in the way that matters most, which is inside. Authoritarianism is not merely a matter of state control, it is something that eats away at who you are. It makes you afraid, and fear can make you cruel. It compels you to conform and to comply and accept things that you would never accept, to do things you never thought you would do.
 
