@@ -191,7 +191,7 @@ origin: /
 
 ----
 
-### 訳注
+#### 訳注
 
 本文書は、[Sarah KENDZIOR](https://twitter.com/sarahkendzior) による [We’re heading into dark times. This is how to be your own light in the Age of Trump](https://thecorrespondent.com/5696/were-heading-into-dark-times-this-is-how-to-be-your-own-light-in-the-age-of-trump/1611114266432-e23ea1a6)
 を日本語に翻訳したものです。

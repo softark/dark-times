@@ -4,6 +4,7 @@
     }
     h1 {font-size: 2.0em;}
     h2 {font-size: 1.4em;}
+    h3 {float: left; margin-right: 2em; width: 12em;}
     .small {display: none}
     .medium {display: inline}
 }
@@ -11,6 +12,7 @@
     h1 {font-size: 2.2em;}
     h2 {font-size: 1.5em;}
     h3, h4 {font-size: 1.1em;}
+    h3 {width: 20em;}
 
     .large {display: inline}
     .medium {display: none}
@@ -20,4 +22,5 @@
     h1 {font-size: 2.4em;}
     h2 {font-size: 1.7em;}
     h3, h4 {font-size: 1.2em;}
+    h3 {width: 30em;}
 }

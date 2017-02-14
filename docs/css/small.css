@@ -201,7 +201,8 @@ blockquote {
     color: #404040;
     /* font-size: 90%; */
     margin-bottom: 1em;
-    padding-left: 0.5em;
+    margin-left: 1em;
+    padding-left: 1em;
     border-left: 3px solid #bbb;
 }
 
