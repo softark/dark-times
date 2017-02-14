@@ -38,15 +38,11 @@ I live in Missouri, now a bright red state, alongside you. I have faced the same
 I am writing down my own good memories, and some of them are with you. I have walked beside you in our state parks, along our flowing rivers, and in our cities and small towns. I have talked and laughed with you in St. Louis, in Cape Girardeau, in Hannibal, in the Ozarks, and in the devastated rural areas in between, while surrounded by your signs and hats proclaiming support for Donald Trump. You do not deserve what is going to happen to you, and I do not deserve what is going to happen to me, because there is absolutely no one in the world who deserves what may be coming.
 
 He told us his plans all along, though most chose to downplay or deny them
-You can look to the president-elect himself for a vision of what is to come. He has told you his plans all along, though most chose to downplay or deny them. You can even look back to before his candidacy, when in February 2014, he went on Fox News to defend Russia. Why a reality TV host was on Fox News defending Russia is its own story, but 
-Listen to what Trump said already back in 2014. here is what he said about his desired outcome for the United States:
+You can look to the president-elect himself for a vision of what is to come. He has told you his plans all along, though most chose to downplay or deny them. You can even look back to before his candidacy, when in February 2014, he went on Fox News to defend Russia. Why a reality TV host was on Fox News defending Russia is its own story, but here is what he said about his desired outcome for the United States:
 
 “You know what solves it? When the economy crashes, when the country goes to total hell and everything is a disaster. Then you’ll have a [chuckles], you know, you’ll have riots to go back to where we used to be when we were great.”
 
-This is what “Make America Great Again” means to Donald Trump. It is how he has operated his businesses, taking advantage of economic disasters like the 
-Read more on Trump being "excited" about the crash. housing market crash for personal gain. It is why, during a long and painful recession, he made “You’re fired” a national catchphrase, because he understands that sometimes it feels good to know that the person getting fired, for once, is not you. He said he could 
-Read more about Trump’s "shoot somebody" remarks here. shoot someone on 5th Avenue and people would still vote for him, and he said he could 
-Read the full transcript of Trump’s taped comments at the New York Times. grab women “by the pussy” because “When you’re a star, they let you do it. You can do anything.”
+This is what “Make America Great Again” means to Donald Trump. It is how he has operated his businesses, taking advantage of economic disasters like the housing market crash for personal gain. It is why, during a long and painful recession, he made “You’re fired” a national catchphrase, because he understands that sometimes it feels good to know that the person getting fired, for once, is not you. He said he could shoot someone on 5th Avenue and people would still vote for him, and he said he could grab women “by the pussy” because “When you’re a star, they let you do it. You can do anything.”
 
 The system is rigged in his favor
 
